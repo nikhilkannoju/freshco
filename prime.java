@@ -1,4 +1,0 @@
-changes in prime file fjhfkjHEGLEKNGLK
-JQEBKJkwajKMKFNMN
-KNFJNFKJGN
-KJGKGJ
