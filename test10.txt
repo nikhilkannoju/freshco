@@ -1,3 +1,7 @@
+<<<<<<< HEAD
 SSDSDSDDSjhsghfgkadjhfkb
+=======
+qweqwewewerelated change for prime function jhsghfgkadjhfkb
+>>>>>>> c9c8141ae5b9010821208155ee82195f6fbfe846
 fjdfkhfj
 hjhj
